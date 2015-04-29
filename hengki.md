@@ -1,4 +1,4 @@
 Nama : Hengki Setiawan
 Kelas/Tingkat : 2G 
 prodi : Teknik inpormatika
-Moto : selalu dihati
+Moto : aku celalu cetia celamanya
